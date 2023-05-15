@@ -1,0 +1,1 @@
+# Klaudia_Opalska_Walidacja_2023
